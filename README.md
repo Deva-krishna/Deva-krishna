@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Deva-krishna
+- 👋 Hi, I’m @Devan
 - 🌱 I’m currently learning btech
 - 📫 reach me devdevan11277@gmail.com
 
